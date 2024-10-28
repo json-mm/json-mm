@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @json-mm
+- 👋 Hi, I’m @bank-mm
 - 👀 I’m interested in ...br nyar br nyar
 - 🌱 I’m currently learning ...br nyar br nyar
 - 💞️ I’m looking to collaborate on ...gf
